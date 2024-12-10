@@ -1,1 +1,1 @@
-Spolupracujeme a je to super
+👍 Spolupracujeme a je to super
